@@ -4,7 +4,7 @@ Welcome to Bear Tea! We make delicious basil tea and more for our customers. We 
 
 
 ## Look out for Bear Tea!
-It is a small place with Tea inside. Drink outside while we make your Tea We Do Not Allow Taking cups outside of the Tea Shop. Do not leave without paying.
+Our business is run in a small shop where we serve our best tea. We have comfortable seats and a warm enviorment in the snowy cold! Look out Basil The Bear!
 
 
 
